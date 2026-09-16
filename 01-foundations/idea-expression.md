@@ -1,1 +1,1 @@
-coming soon
+(17 U.S.C. § 102(a) - Works of "art" that are made with a real way to make the art can be protected under copyright law. The works can be literacy (books, poems, etc), music pieces including the lyrics, comedy shows/live dancing, anything graphic like paintings, digital art, etc, motion pictures (also known as movies, tv shows, etc), audio visual or an art that has sound and visual stuff, sound recordings, and architectual works like building schematics and anything involving building.
